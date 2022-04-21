@@ -24,7 +24,7 @@ Additionally I dabble in:
 
 You may contact my using my email [karol.kierzkowski72@gmail.com](mailto:karol.kierzkowski72@gmail.com) or through any of the social sites below:
 
-* [LinkedIn](https://www.linkedin.com/in/karolk72/).
+* [LinkedIn](https://www.linkedin.com/in/karolk72/)
 * [GitHub](https://github.com/K-Karol)
 * [Twitter](https://twitter.com/Karol_K72)
 * [Discord](https://discordapp.com/users/262163233345896448)
